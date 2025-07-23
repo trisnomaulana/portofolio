@@ -2,7 +2,7 @@
 
 Berikut adalah rangkuman proyek dan pencapaian kunci dari pengalaman profesional Trisno Maulana, menyoroti hasil konkret dan dampak yang telah dicapai, dengan ruang untuk visualisasi.
 
-## 1. Program Air Bersih, Sanitasi, dan Higiene (WASH) & Pengelolaan Sumber Daya Air (WRM) - USAID IUWASH Tangguh & Plus (2019 - Sekarang)
+## 1. Program Air Bersih, Sanitasi, dan Higiene (WASH) & Pengelolaan Sumber Daya Air (WRM) - USAID IUWASH Tangguh & Plus ( 08/2019 - 03/2025)
 
 **Peran:** City Facilitator (Bogor Regency) & WASH Facilitator (Bogor Regency)
 
